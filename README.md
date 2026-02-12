@@ -109,5 +109,3 @@ Empowering Agriculture with AI 🌾🤖
 
 ---
 
-
-Just tell me 👍
